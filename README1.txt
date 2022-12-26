@@ -1,2 +1,3 @@
-Texttxetteetteet etro
+
 Chel xorosh
+OEBEBE POTEKLO
